@@ -1,3 +1,3 @@
 
 
-**__[Check out Here!](https://quirky-wozniak-772712.netlify.com/)__ **
+___[Check out Here!](https://quirky-wozniak-772712.netlify.com/)___
